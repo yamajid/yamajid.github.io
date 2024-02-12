@@ -1,0 +1,1 @@
+# yamajid.github.io
